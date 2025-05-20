@@ -8,9 +8,7 @@
 
 💬 Wanna ask something? Contact me in my Discord : ``realrtf``
 
-
-I don't care about gender things. I am straight male.
-
+한국인입니다. 디스코드로 친추보내셔도 상관 없습니다!
 <!--
 **RTFTR/RTFTR** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
